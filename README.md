@@ -5,7 +5,7 @@ Stella and I were walking down the *Nature Trail* in the **Stay Away Forest** wh
 * Banana
 * Grapes
 
-We decided to walk together after sharing the fruits. We got done with the walk at about quarter past 4 and were happy with our little adventure, having not only taken photos of ourselves having fun but also some monkeys that caught our eyes. One of them was a beautiful photo depicting a `mother's bond with her little one`.
+We decided to walk together after sharing the fruits and got done with the walk at about quarter past 4. We were happy with our little adventure, and not only took photos of ourselves having fun but also of some monkeys that caught our eyes. One of them was a beautiful photo depicting a `mother's bond with her little one`.
 
 ![MONKEYS LOVE](https://cdn.the-scientist.com/assets/articleNo/64584/aImg/27871/monkey-nut-l.jpg)
 
