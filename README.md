@@ -17,9 +17,11 @@ I noted some other beautiful places to go to too
     Bingwa National Park
     Prestige Walk Through
     Sunset Resort
- [THE SUNSET AT SUNSET RESORT](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.countryliving.com%2Flife%2Fg32106800%2Fsunset-quotes%2F&psig=AOvVaw11kUVuRtuNobhA9ZGakLLO&ust=1633692590054000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCLiSuqaZuPMCFQAAAAAdAAAAABAJ)
+ The link below will give you an idea of why I love sunsets
  
- Will be sure to keep you updated on our next travel
+ [THE SUNSET](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.countryliving.com%2Flife%2Fg32106800%2Fsunset-quotes%2F&psig=AOvVaw11kUVuRtuNobhA9ZGakLLO&ust=1633692590054000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCLiSuqaZuPMCFQAAAAAdAAAAABAJ)
+ 
+ Will be sure to keep you updated on our next fun time with nature.
     
 *** 
 ADIOS!!!!!
